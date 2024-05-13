@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Nothing
 - 📫 How to reach me: You can't
 - 😄 Pronouns: It/They
-- ⚡ Fun fact: I can do a texan accent aha
+- ⚡ Fun fact: I can do a texan accent and draw aha
 
 <!---
 Nanash1San/Nanash1San is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
